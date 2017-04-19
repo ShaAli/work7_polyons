@@ -1,1 +1,0 @@
-# work7_polyons
